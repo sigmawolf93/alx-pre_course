@@ -1,1 +1,1 @@
-I'll soon becoming a SOFTWARE ENGINEER.
+Becoming a software engineer soon
